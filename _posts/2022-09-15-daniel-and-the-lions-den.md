@@ -2,7 +2,7 @@
 layout: post
 title: Daniel and the Lions' Den
 ---
-## Men's Bible Study: Week 5
+## Men's Discipleship Bible Study: Week 5
 Daniel 6:1-28.
 ### About the book of Daniel:
 The book of Daniel is one of five books in the Old Testament referred to as the Major Prophets. These books are Isaiah, Jeremiah, Lamentations Ezekiel and Daniel. This is in contrast to the 12 books known as the Minor Prophets. The terms major and minor don't refer to the significance of prophets themselves, but rather the books. The prophet Daniel is credited as the author of the book that bears his name. The book of Daniel is both prophetic and historical, chronicling the people, and events surrounding the capture and exile of Israel by the Babylonians in 605 B.C. and later the Medo-Persians in 539 B.C.

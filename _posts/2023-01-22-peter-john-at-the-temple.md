@@ -6,7 +6,7 @@ chapter: 3
 verse: '1-26'
 week: 7
 ---
-## Men's Bible Study: Week {{page.week}}
+## Men's Discipleship Bible Study: Week {{page.week}}
 [{{page.book}} {{page.chapter}}:{{page.verse}}](https://www.biblegateway.com/passage/?search={{page.book}}+{{page.chapter}}%3A{{page.verse}}&version=NIV)
 
 ### About {{page.book}}:
@@ -19,7 +19,7 @@ The events in Acts 3 take place some time after Jesus' disciples were baptized i
 
 ### For Discussion:
 1. Replay the story in your mind and imagine that you are the beggar. One of the onlookers. Peter. John. What might be going through your mind as these events unfold?
-2. Can we reason from scripture that this was probably not the first time Peter and John had seen the beggar? How about Jesus?
+2. Can we reason from scripture that this was probably not the first time Peter and John had seen the beggar? How about Jesus? Do you think He noticed him?
 3. Why do you think God may have chosen this moment and this place to perform a miracle and heal this man? Why not anytime before?
 4. What do we see that God required of Peter, John or the beggar before the healing would take place?
 5. What do you find most remarkable about Peter's response to the onlooking temple worshippers?

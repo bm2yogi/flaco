@@ -2,7 +2,7 @@
 layout: post
 title: "Surrender: The Rich Young Ruler"
 ---
-## Men's Bible Study: Week 4
+## Men's Discipleship Bible Study: Week 4
 The account of the rich young ruler is found in Matthew 19:16-30, Mark 10:17-31 and Luke 18:18-30.
 ### About the Gospels:
 The first four books of the New Testament (Matthew, Mark, Luke and John) are collectively known as the Gospels. They are a firsthand and secondhand account from eyewitnesses to Jesus' life, ministry, death and resurrection.  All evidence points to the gospels having been written as early as 41 AD, no later than 70 AD and set in Roman-occupied Israel and surrounding area. The gospels are historical records by nature, written for an ancient Hebrew audience.

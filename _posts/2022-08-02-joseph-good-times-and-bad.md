@@ -2,7 +2,7 @@
 layout: post
 title: "Joseph: Good Times and Bad"
 ---
-## Men's Bible Study: Week 3
+## Men's Discipleship Bible Study: Week 3
 The account of Joseph is found in Genesis 37-50
 ## About Genesis:
 Genesis and the four books that follow it are known as the Pentateuch, written by Moses around 1500 B.C. The events surrounding Joseph’s story took place around 1900 B.C. and were likely passed down through oral and/or written tradition until they were written in Genesis. Genesis is a historical book by nature, written for an ancient Hebrew audience.
