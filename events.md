@@ -3,10 +3,6 @@ layout: page
 title: Events
 ---
 ## Upcoming Events
-### [Men's Discipleship Bible Study][Table22]
-When: January 26, 2023 @ 6:30pm  
-Where: The Ibarra Home  
-Details: [/studies][table22]
 
 ### [Pursuit Prayer][Pursuit/Calendar]
 When: February 1, 2023 @ 6am  
