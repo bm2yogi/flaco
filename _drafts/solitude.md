@@ -1,10 +1,7 @@
 ---
 layout: post
-title: Template
-book: Genesis
-chapter: 1
-verse: '1-5'
-week: 999
+title: 'Spiritual Disciplines: Solitude'
+week: 0
 ---
 ## Men's Bible Study: Week {{page.week}}
 

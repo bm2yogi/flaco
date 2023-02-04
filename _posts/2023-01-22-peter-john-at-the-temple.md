@@ -7,6 +7,7 @@ verse: '1-26'
 week: 7
 ---
 ## Men's Discipleship Bible Study: Week {{page.week}}
+
 [{{page.book}} {{page.chapter}}:{{page.verse}}](https://www.biblegateway.com/passage/?search={{page.book}}+{{page.chapter}}%3A{{page.verse}}&version=NIV)
 
 ### About {{page.book}}:

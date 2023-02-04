@@ -2,6 +2,7 @@
 layout: page
 permalink: /outline/
 ---
+
 ## Men's Bible Study
 ### Goal
 Men discipling one another into Christ-centered relationships, in which the Holy Spirit empowers them to be the fathers, 
