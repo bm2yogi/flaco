@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Peter and John at the Temple
+title: Peter and John Healing at the Temple
 book: Acts
 chapter: 3
 verse: '1-26'

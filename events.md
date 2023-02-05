@@ -69,6 +69,11 @@ When: March 8, 2023 @ 6am
 Where: Pursuit Snohomish  
 Details: [thepursuitnw.com/calendar][Pursuit/Calendar]
 
+### [Resolve Men's Conference](https://thehousemc.churchcenter.com/registrations/events/1576452)
+When: March 10 6pm-9pm & March 11 8am-4pm
+Where: The House Ministry Center
+Details: [Resolve Men's Conference](https://thehousemc.churchcenter.com/registrations/events/1576452)
+
 ### [Pursuit Men - Men's Breakfast][Pursuit/Calendar]
 When: March 11, 2023 @ 9am  
 Where: Pursuit Snohomish  
