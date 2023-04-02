@@ -2,9 +2,8 @@
 layout: post
 title: "Often Misused Bible Verses"
 ---
-## Often Misused Bible Verses
+## What do they really mean?
 
-### What do they really mean?
 *You’ve often heard these verses quoted or ideas expressed. Read each passage and before doing anything else, ask yourself what do you think of when you these verses?* 
 
 *Now open your Bible to the passage and start reading about 20 verses before and after it. What is the actual context? Is there more to the statement? To whom is this passage written? Specific people or all people? Is it descriptive or prescriptive?*
