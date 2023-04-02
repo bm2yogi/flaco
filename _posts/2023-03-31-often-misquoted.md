@@ -1,10 +1,12 @@
 -----
 layout: post
-title: Often Misquoted Bible Verses
+title: "Often Misused Bible Verses"
 -----
-Often (Mis)quoted Verses
-What do they really mean?
-You’ve often heard these verses quoted or ideas expressed. What do you think of when you these verses? Now open your Bible to each passage and start reading about 20 verses before it. What is the actual context? Is there more to the statement? To whom is this passage written? Specific people or all people? Is it descriptive or prescriptive?
+## Often Misused Bible Verses
+### What do they really mean?
+*You’ve often heard these verses quoted or ideas expressed. Read each passage and before doing anything else, ask yourself what do you think of when you these verses?* 
+
+*Now open your Bible to the passage and start reading about 20 verses before and after it. What is the actual context? Is there more to the statement? To whom is this passage written? Specific people or all people? Is it descriptive or prescriptive?*
 
 For I know the plans I have for you,” declares the Lord, “plans to prosper you and not to harm you, plans to give you hope and a future. – Jeremiah 29:11
 
@@ -17,8 +19,6 @@ For where two or three are gathered in my name, there am I among them. – Matth
 Death and life are in the power of the tongue, and those who love it will eat its fruits. – Proverbs 18:21
 
 Give, and it will be given to you. Good measure, pressed down, shaken together, running over, will be put into your lap. For with the measure you use it will be measured back to you. – Luke 6:38
-
-No temptation has overtaken you that is not common to man. God is faithful, and he will not let you be tempted beyond your ability, but with the temptation he will also provide the way of escape, that you may be able to endure it. – 1 Corinthians 10:13
 
 Judge not, that you be not judged. -Matthew 7:1
 
