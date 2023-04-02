@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Often Misused Bible Verses"
+title: "Often Misapplied Bible Verses"
 ---
 ## What do they really mean?
 
