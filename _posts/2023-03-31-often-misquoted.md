@@ -1,8 +1,9 @@
------
+---
 layout: post
 title: "Often Misused Bible Verses"
------
+---
 ## Often Misused Bible Verses
+
 ### What do they really mean?
 *You’ve often heard these verses quoted or ideas expressed. Read each passage and before doing anything else, ask yourself what do you think of when you these verses?* 
 
