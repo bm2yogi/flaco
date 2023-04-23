@@ -41,10 +41,10 @@ The "Donuts with Grownups" is scheduled for May 23, 24 and 25 from 7:45-8:15am i
 
 The this year's events were originally scheduled for May 11 and June 8. In 2018, the events were held on campus at 8am.
 
-There is a school board meeting for Riverview Elementary on Wednesday 4/26. It is open to the public. Here's the link to the agenda. https://www.sno.wednet.edu/cms/lib/WA01919489/Centricity/domain/131/board%20agendas/01%20Agenda%204-26-2023.pdf
+There is a school board meeting for Riverview Elementary on Wednesday 4/26. It is open to the public. Here's the link to the [agenda.](https://www.sno.wednet.edu/cms/lib/WA01919489/Centricity/domain/131/board%20agendas/01%20Agenda%204-26-2023.pdf)
 
 Riverview Elementary has approximately 560 children enrolled via grades K-6 and is located approximately 4 miles from the Pursuit Snohomish campus.
 The district roughly is bounded by the Snohimish River to the west and south, Hwy 2 to the north and Hwy 9/Avenue D to the east.
 
 ## References:
-[Mothers' Day cancelled at Seattle-area school to avoid 'triggering' students —Pride event with drag show continues](https://thepostmillennial.com/exclusive-mothers-day-cancelled-at-seattle-area-school-to-avoid-triggering-students-pride-event-with-drag-show-continues)
+[Post-Millenial: Mothers' Day cancelled at Seattle-area school to avoid 'triggering' students —Pride event with drag show continues](https://thepostmillennial.com/exclusive-mothers-day-cancelled-at-seattle-area-school-to-avoid-triggering-students-pride-event-with-drag-show-continues)
