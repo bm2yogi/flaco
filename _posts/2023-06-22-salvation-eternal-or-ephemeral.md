@@ -4,6 +4,7 @@ title: Salvation. Eternal or Ephemeral?
 ---
 
 ## What is Salvation?
+
 In the New Testament, the words "salvation" (*soteria* in Greek) and "saved" (*sozo* in Greek).
 appear 45 and 110 times each, respectively.
 

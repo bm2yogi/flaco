@@ -1,5 +1,5 @@
 ---
 layout: home
 title: Studies
-list_title: "Recent and Upcoming Studies"
+list_title: "Recent Studies"
 ---
