@@ -35,5 +35,8 @@ to be bold and shameless... to confidently expect God to answer your prayers.
 > [Luk 11:5-13 NIV]
 
 ### Observations
-1. Read each statement of the Lord's Prayer one by one, What is the significance of each passage? Why did Jesus include it? 
-Do you think there's any significance to the order of the phrases?
+1. Read each statement of the Lord's Prayer one by one, What makes each passage significant? Why might Jesus have included it? 
+2. What do you think is the significance to the order of the phrases?
+3. Do any of Jesus' statements in Luke 11:5-13 challenge your way of thinking about what prayer ought to look like? 
+4. Do any of Jesus' statements in Matthew 6:5-8 challenge your way of thinking about what prayer ought to look like?
+5. How will you pray differently tomorrow?
