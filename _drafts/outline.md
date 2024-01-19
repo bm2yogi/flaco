@@ -82,6 +82,7 @@ Caleb and Joshua
 ### Negative Character Studies
 Adam - Abdicating his spiritual responsibilities to his wife.
 Eli - Failed to restrain his sons from the evil he knew they were doing
+David - 6 (His father had never rebuked him by asking, "Why do you behave as you do?" He was also very handsome and was born next after Absalom.) - 1 Kings 1:6 NIV
 David - Neglected Absalom, Failed to act when his daughter was raped.
 Abraham - Forsook God's promise, Played favorites as a father
 Samson - Strength without discipline
