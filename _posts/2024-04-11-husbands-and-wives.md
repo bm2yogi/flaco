@@ -3,7 +3,7 @@ layout: post
 title: Christian Husbands and Wives
 ---
 
-## What does God have to say about the Christian Marriage?
+## What does God have to say to Husbands and Wives?
 Depending on the spiritual background of whom you ask, you might get different answers. What does the Bible say? One 
 thing that we should all easily agree on is that through the gospel, God places equal value on women as He does on men. 
 
@@ -17,14 +17,13 @@ separate atonement was made for man than for woman. God paid the highest price p
 be a higher price than His own blood. 
 
 We also observe that this standing in Christ is conferred upon all believing men and women without regard to marital status.
-Men and women in a marriage are just as equal in this regard before God as single men and women. The married man and 
-woman have additional God-given obligations to one another unique to the marital relationship.
+Men and women in a marriage are just as equal in this regard before God as single men and women. But wait, it gets better. the married man and 
+woman have an additional dimension to their relationship that is unique to the marital relationship.
 
 > [18] Wives, submit to your husbands, as is fitting in the Lord. [19] Husbands, love your wives, and do not be harsh 
  with them.
 > 
 > Colossians 3:18-19 ESV
-Before you 
 
 
 > [22] Wives, submit to your own husbands, as to the Lord. [23] For the husband is the head of the wife even as Christ is the
@@ -67,11 +66,12 @@ Before you
 
 ### Questions:
 
-* What can we conclude that Scripture has to say about mutual submission in marriage?
 * In what ways are men and women equal?
 * In what ways are men and women not equal?
-* What is a husband's responsibility to his wife?
-* What is a wife's responsibility to her husband?
+* What is a husband's unique responsibility to his wife?
+* What is a wife's unique responsibility to her husband?
 * What if a husband or wife is a non-believer?
 * What if a husband isn't behaving in a godly manner?
 * What if a wife isn't behaving in a godly manner?
+* How do these passages describing God's design for marriage point to the Gospel?
+* What can we conclude that Scripture has to say about mutual submission in marriage?
