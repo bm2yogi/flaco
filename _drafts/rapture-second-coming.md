@@ -4,6 +4,8 @@ title: Second Coming of Christ
 ---
 ## The Rapture and the Second Coming of Christ
 
+**
+
 ### References:
 #### Olivet Discourse
 

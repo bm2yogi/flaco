@@ -66,8 +66,8 @@ woman have an additional dimension to their relationship that is unique to the m
 
 ### Questions:
 
-* In what ways are men and women equal?
-* In what ways are men and women not equal?
+* In what ways do the Scriptures say men and women are equal?
+* In what ways do the Scriptures say men and women are not equal?
 * What is a husband's unique responsibility to his wife?
 * What is a wife's unique responsibility to her husband?
 * What if a husband or wife is a non-believer?
