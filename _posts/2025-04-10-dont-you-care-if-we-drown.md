@@ -18,9 +18,9 @@ that Mark's gospel was written primarily for Gentile converts to Christianity. M
 been written during Nero’s reign, between 54–68 AD.
 
 ### Background:
-Mark 4 records events that occurred on a single day of teaching on the shores of the Sea of Galilee. Here, He teaches
-delivers and explains the Parable of the Sower, along with delivering other parables. He spent the better part of that 
-teaching throughout the evening... 
+Mark 4 records events that occurred on a single day of teaching on the shores of the Sea of Galilee. Here, Jesus 
+delivers and explains the Parable of the Sower, along with other parables He does not explain. Jesus spent the better part of that 
+day teaching until evening came... 
 
 > 1 Again Jesus began to teach by the lake. The crowd that gathered around him was so large that he got into a boat and sat in it out on the lake, while all the people were along the shore at the water's edge. 2 He taught them many things by parables, and in his teaching said: 3 "Listen! A farmer went out to sow his seed. 4 As he was scattering the seed, some fell along the path, and the birds came and ate it up. 5 Some fell on rocky places, where it did not have much soil. It sprang up quickly, because the soil was shallow. 6 But when the sun came up, the plants were scorched, and they withered because they had no root. 7 Other seed fell among thorns, which grew up and choked the plants, so that they did not bear grain. 8 Still other seed fell on good soil. It came up, grew and produced a crop, some multiplying thirty, some sixty, some a hundred times." 9 Then Jesus said, "Whoever has ears to hear, let them hear." 
 > 
@@ -38,11 +38,12 @@ teaching throughout the evening...
 
 
 ### For Discussion:
-1. What are the major themes of this passage?
-2. How do you understand these parables?
+1. What are the major themes of these passages?
+2. What do you understand these parables to mean?
 3. What do these passages teach us about Jesus and God's plan of salvation?
 4. What do you make of the disciple's question, "Teacher! Don't you care if we drown?!"
 5. What do you make of Jesus' response?
 4. What does the story of the boat in the storm tell us about ourselves?
-5. What does Jesus want us to learn from this?
+5. What does Jesus want us to learn from this? 
+6. What do these passages teach us about how are we to live our lives as men, husbands, fathers, sons and leaders in our community?  
 
