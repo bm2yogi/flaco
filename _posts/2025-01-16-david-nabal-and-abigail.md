@@ -5,10 +5,10 @@ book: 1 Samuel
 chapter: 25
 verse: '2-42'
 ---
-## Men's Bible Study: {{page.Title}}
+## Men's Bible Study: {{page.book}} {{page.chapter}}:{{page.verse}}
 
 ### About the book of {{page.book}}:
-1 Samuel and 2 Samuel were written by the prohpet Samuel and records 115 years of Israel's
+1 Samuel and 2 Samuel were written by the prophet Samuel and records 115 years of Israel's
 history from around 1100 BC to 1010 BC. The book was primarily written for an ancient Hebrew
 audience to preserve their history as a nation and their history with God.
 
