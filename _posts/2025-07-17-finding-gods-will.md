@@ -51,7 +51,7 @@ Peter's letter to the church scattered across Asia Minor:
 > 19 So then, those who **suffer according to God's will** should commit themselves to their faithful Creator and continue to do good. - 1 Peter 4:19 NIV
 
 Jesus, giving final instructions to His disciples after His resurrection:
-> 19 18 Then Jesus came to them and said, "All authority in heaven and on earth has been given to me. 19 Therefore go and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, 20 and teaching them to obey everything I have commanded you. And surely I am with you always, to the very end of the age." - Matthew 28:18-20 NIV
+> 18 Then Jesus came to them and said, "All authority in heaven and on earth has been given to me. 19 Therefore go and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, 20 and teaching them to obey everything I have commanded you. And surely I am with you always, to the very end of the age." - Matthew 28:18-20 NIV
 
 ### For Discussion:
 1. What can we observe from these passages about what God wants for Himself?
