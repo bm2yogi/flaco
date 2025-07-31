@@ -10,7 +10,7 @@ the word apostle, we might think of Paul or Peter or the twelve disciples. We mi
 some modern-day figures in the church while others argue that apostleship ended long ago. How do we separate the truth 
 from error? What does God have to say about it through His word as recorded in the Scriptures?
 
-The word apostle and apostleship appear only in the New Testament. These words were translated from the original Greek
+The words apostle and apostleship appear only in the New Testament. These words were translated from the original Greek
 words apostolos and apostole which in the simplest terms means someone sent by another as a delegate for a task or mission.
 
 #### Strongs Definitions:
@@ -51,7 +51,7 @@ the qualifications for apostleship? What were the functions of the apostles in t
 >
 > 19 Consequently, you are no longer foreigners and strangers, but fellow citizens with God's people and also members of his household, 20 built on the foundation of the apostles and prophets, with Christ Jesus himself as the chief cornerstone. 21 In him the whole building is joined together and rises to become a holy temple in the Lord. 22 And in him you too are being built together to become a dwelling in which God lives by his Spirit. - Ephesians 2:19-22 NIV
 
-#### False Apostles and 
+#### False Apostles 
 Not long after Christ's ascension, the early church had to contend with "false apostles" who infiltrated the church and
 introduce false teachings and heresies...
 
