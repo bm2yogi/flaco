@@ -1,11 +1,12 @@
 ---
 layout: post
-title: Suffering - Part Two
+title: Suffering Saints
 
 ---
 ## Men's Bible Study: {{page.title}}
 
 ### Overview:
+What do the Scriptures teach us about suffering?
 To understand how Scripture presents suffering as part of God's will—not always as punishment, but often as a means of sanctification, witness, or spiritual formation.
 
 ### Suffering for Righteousness

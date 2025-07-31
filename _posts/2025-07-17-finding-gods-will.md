@@ -45,6 +45,9 @@ Paul's letter to the church in Thessalonica:
 
 > 16 Rejoice always, 17 pray continually, 18 give thanks in all circumstances; for **this is God's will for you** in Christ Jesus. - 1 Thessalonians 5:16-18 NIV
 
+Paul's letter to Timothy for the church in Ephesus:
+>1 I urge, then, first of all, that petitions, prayers, intercession and thanksgiving be made for all people-- 2 for kings and all those in authority, that we may live peaceful and quiet lives in all godliness and holiness. 3 This is good, and pleases God our Savior, 4 who wants all people to be saved and to come to a knowledge of the truth. - 1 Timothy 2:1-4 NIV
+
 Peter's letter to the church scattered across Asia Minor:
 > 11 Dear friends, I urge you, as foreigners and exiles, to abstain from sinful desires, which wage war against your soul. 12 Live such good lives among the pagans that, though they accuse you of doing wrong, they may see your good deeds and glorify God on the day he visits us. 13 Submit yourselves for the Lord's sake to every human authority: whether to the emperor, as the supreme authority, 14 or to governors, who are sent by him to punish those who do wrong and to commend those who do right. 15 **For it is God's will** that by doing good you should silence the ignorant talk of foolish people. 16 Live as free people, but do not use your freedom as a cover-up for evil; live as God's slaves. 17 Show proper respect to everyone, love the family of believers, fear God, honor the emperor. 18 Slaves, in reverent fear of God submit yourselves to your masters, not only to those who are good and considerate, but also to those who are harsh. - 1 Peter 2:11-18 NIV
 
