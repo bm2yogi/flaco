@@ -21,6 +21,13 @@ title: Salvation, Grace, Faith & Works
 > Christ and not by the works of the law, because by the works of the law no one will be justified. - Galatians
 > 2:15-16 NIV
 
+### What is Faith?
+Hebrews 11 describes faith as follows and then is packed with examples of men and women who demonstrated real faith by
+their obedience and action.
+> 1 Now faith is confidence in what we hope for and assurance about what we do not see. 2 This is what the ancients 
+> were commended for. ... 6 And without faith it is impossible to please God, because anyone who comes to him must 
+> believe that he exists and that he rewards those who earnestly seek him. - Hebrews 11:1-2, 6 NIV
+
 ### Works are Evidence of Faith
 >14 What good is it, my brothers and sisters, if someone claims to have faith but has no deeds? Can such faith save 
 > them? 15 Suppose a brother or a sister is without clothes and daily food. 16 If one of you says to them, "Go in 
@@ -45,6 +52,24 @@ works. We receive this salvation through faith, but it is only because God's gra
 would our faith have any effect?
 > 8 For it is by grace you have been saved, through faith--and this is not from yourselves, it is the gift of God-- 9 
 > not by works, so that no one can boast. - Ephesians 2:8-9 NIV
+
+> 9 He has saved us and called us to a holy life--not because of anything we have done but because of his own purpose 
+> and grace. This grace was given us in Christ Jesus before the beginning of time, - 2 Timothy 1:9 NIV
+
+> 5 he saved us, not because of righteous things we had done, but because of his mercy. He saved us through the washing 
+> of rebirth and renewal by the Holy Spirit, - Titus 3:5 NIV
+
+### Grace is Invalidated by Works
+> 5 So too, at the present time there is a remnant chosen by grace. 6 And if by grace, then it cannot be based on 
+> works; if it were, grace would no longer be grace. - Romans 11:5-6 NIV
+
+> 2 If, in fact, Abraham was justified by works, he had something to boast about--but not before God. 3 What does 
+> Scripture say? "Abraham believed God, and it was credited to him as righteousness." 4 Now to the one who works, 
+> wages are not credited as a gift but as an obligation. 5 However, to the one who does not work but trusts God who 
+> justifies the ungodly, their faith is credited as righteousness. - Romans 4:2-5 NIV
+
+If Grace is invalidated by works, can we correctly consider faith to be a "work?" How about repentance? If faith or 
+repentance is to be considered a work, then they logically must invalidate grace.
 
 ### Bonus: Are We Saved by Water Baptism?
 > 18 For Christ also suffered once for sins, the righteous for the unrighteous, to bring you to God. He was put to 
