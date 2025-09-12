@@ -46,7 +46,7 @@ their obedience and action.
 > 20 First to those in Damascus, then to those in Jerusalem and in all Judea, and then to the Gentiles, I preached that 
 > they should repent and turn to God and demonstrate their repentance by their deeds. - Acts 26:20 NIV
 
-### Salvation by Grace Through Faith
+### Salvation is by Grace Through Faith
 > 8 For it is by grace you have been saved, through faith--and this is not from yourselves, it is the gift of God-- 9 
 > not by works, so that no one can boast. - Ephesians 2:8-9 NIV
 
@@ -60,7 +60,8 @@ their obedience and action.
 > have eternal life. - John 3:16 NIV
 
 Here we see that our salvation comes to us as a result of God's grace and not works. We receive our salvation through 
-faith, but it is only because God's grace makes it possible. Without God's grace would our faith have any effect?
+faith, but it is only because God's grace makes it possible. Without God's grace would our faith have any effect in 
+securing our salvation?
 
 ### Grace is Invalidated by Works
 > 5 So too, at the present time there is a remnant chosen by grace. 6 And if by grace, then it cannot be based on 
