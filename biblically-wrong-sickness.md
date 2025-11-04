@@ -29,7 +29,6 @@ This directly contradicts what God Himself has said in His word.
 * The Corinthians brought God’s judgment upon themselves resulting in sickness and death – 1 Corinthians 11:29-30
 * God struck Herod down – Acts 12:23
 * God used Paul's illness to make it possible for him to preach to the Galatians – Galatians 4:13-14
-* Epaphroditus was ""
 * Timothy encouraged to drink wine due to stomach issues and frequent illnesses – 1 Timothy 5:23
 
 Bad theology hurts people. This teaching is unbiblical, false and dangerous to the faith of those who might put their hope in something God never said.
