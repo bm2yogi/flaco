@@ -14,7 +14,7 @@ This directly contradicts what God Himself has said in His word.
 * God afflicted Moses with leprosy. Exodus 4:6
 * God told Moses HE is the one who makes people deaf, mute or blind. Exodus 4:11
 * God struck the Egyptians with boils and sores during 12 plagues.
-* God struck the Israelites with a plage for worshipping the golden calf – Exodus 32:35
+* God struck the Israelites with a plague for worshipping the golden calf – Exodus 32:35
 * God struck the Israelites with a plague -Numbers 11:33
 * God struck Moses’ sister, Miriam, with leprosy – Numbers 12:10
 * God promised to send the Israelites “severe and lingering illnesses” - Deuteronomy 28:58-61
