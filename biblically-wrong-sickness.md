@@ -6,8 +6,9 @@ subtitle: Part 1
 ### Part 1
 ### Sickness and disease are not of God / God does not allow sickness
 
-
-Many popular preachers hold this view, including Kenneth Copeland, Andrew Wommack, Benny Hinn, Bill Johnson (Bethel Church), Joseph Prince, Joyce Meyer, Creflo Dollar, TD Jakes and Joel Osteen.
+There are many popular preachers out there who hold to the idea that God doesn't allow for 
+sickness and disease, or illnesses are not from God or something similar.
+Preachers who teach this include Kenneth Copeland, Andrew Wommack, Benny Hinn, Bill Johnson (Bethel Church), Joseph Prince, Joyce Meyer, Creflo Dollar, TD Jakes and Joel Osteen.
 
 This directly contradicts what God Himself has said in His word.
 * God afflicted Moses with leprosy. Exodus 4:6
@@ -27,7 +28,8 @@ This directly contradicts what God Himself has said in His word.
 * God killed Ananias and Sapphira – Acts 5:1-10
 * The Corinthians brought God’s judgment upon themselves resulting in sickness and death – 1 Corinthians 11:29-30
 * God struck Herod down – Acts 12:23
-* Paul had “an illness” while pastoring the Galatians – Galatians 4:13-14
+* God used Paul's illness to make it possible for him to preach to the Galatians – Galatians 4:13-14
+* Epaphroditus was ""
 * Timothy encouraged to drink wine due to stomach issues and frequent illnesses – 1 Timothy 5:23
 
 Bad theology hurts people. This teaching is unbiblical, false and dangerous to the faith of those who might put their hope in something God never said.
