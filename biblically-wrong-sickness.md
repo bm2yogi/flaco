@@ -1,10 +1,11 @@
 ---
 layout: post
-title: Biblically Wrong Things Christians
+title: Biblically Wrong Things Christians Say
 subtitle: Part 1
 ---
-# Biblically WRONG Things Christians Say - Part 1
-## “Sickness and disease are not of God / God does not allow sickness”
+### Part 1
+### Sickness and disease are not of God / God does not allow sickness
+
 
 Many popular preachers hold this view, including Kenneth Copeland, Andrew Wommack, Benny Hinn, Bill Johnson (Bethel Church), Joseph Prince, Joyce Meyer, Creflo Dollar, TD Jakes and Joel Osteen.
 
