@@ -1,13 +1,16 @@
 ---
 layout: post
-title: Biblically Wrong Things Christians Say
+title: Biblically Wrong Things Christians Believe
 subtitle: Part 1
 ---
 ### Part 1
 ### Sickness and disease are not of God / God does not allow sickness
 
-There are many popular preachers out there who hold to the idea that God doesn't allow for 
-sickness and disease, or illnesses are not from God or something similar.
+There is a popular notion being spread among the church that declares God doesn't allow for 
+sickness and disease, or illnesses are not from God. The idea is that any sickness or illness among
+believers is not the will of God. That sickness and disease comes from the devil and not God because physical healing
+is the right of every believer purchased through the Atonement, often taking Isaiah 53:5 out of the full context.
+
 Preachers who teach this include Kenneth Copeland, Andrew Wommack, Benny Hinn, Bill Johnson (Bethel Church), Joseph Prince, Joyce Meyer, Creflo Dollar, TD Jakes and Joel Osteen.
 
 This directly contradicts what God Himself has said in His word.
@@ -31,4 +34,9 @@ This directly contradicts what God Himself has said in His word.
 * God used Paul's illness to make it possible for him to preach to the Galatians – Galatians 4:13-14
 * Timothy encouraged to drink wine due to stomach issues and frequent illnesses – 1 Timothy 5:23
 
-Bad theology hurts people. This teaching is unbiblical, false and dangerous to the faith of those who might put their hope in something God never said.
+Bad theology hurts people. These scriptures clearly teach that God not only uses disease and sickness for His glory,
+but in some cases, He causes disease and illness. To teach that He doesn't is unbiblical, false and dangerous to the 
+faith of those who might put their hope in something God never said.
+
+This is not to say that God cannot or does not heal people. There are examples of this throughout both the Old and New
+Testaments. What we observe, however is that God does so based on His will, His wisdom, His timing and for His glory.
