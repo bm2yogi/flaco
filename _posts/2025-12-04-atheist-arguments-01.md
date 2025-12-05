@@ -30,7 +30,9 @@ When the women saw the resurrected Jesus at the empty tomb...
 
 After healing the man born blind...
 > 35 Jesus heard that they had thrown him out, and when he found him, he said, "Do you believe in the Son of Man?" 36 "Who is he, sir?" the man asked. "Tell me so that I may believe in him." 37 Jesus said, "You have now seen him; in fact, he is the one speaking with you." 38 Then the man said, "Lord, I believe," and he worshiped him. - John 9:35-38 NIV
-> **Notice how Jesus refers to Himself as the "Son of Man." What would that have meant to a Jew during that time?
+>
+> **Notice how Jesus refers to Himself as the "Son of Man." What would that have meant to a Jew during that time?**
+> 
 > 9 "As I looked, "thrones were set in place, and the Ancient of Days took his seat. His clothing was as white as snow; the hair of his head was white like wool. His throne was flaming with fire, and its wheels were all ablaze. ... 13 "In my vision at night I looked, and there before me was one like a son of man, coming with the clouds of heaven. He approached the Ancient of Days and was led into his presence. 14 He was given authority, glory and sovereign power; all nations and peoples of every language worshiped him. His dominion is an everlasting dominion that will not pass away, and his kingdom is one that will never be destroyed. - Daniel 7:9, 13-14 NIV
 
 #### 3. Jesus exercised authority belonging exclusive to God.
@@ -57,8 +59,8 @@ Just before healing Lazarus
 
 #### Summary
 This claim is an attempt to diminish the message of the Gospel and portray Jesus as just one out of a million good, but 
-human and flawed teachers. If Jesus was just a man, then His words, His teaching, even His crucifixion and resurrection 
-are no more significant than you or I. However, there is plenty of Scriptural evidence that Jesus *did* not only claim 
-to be God, but He proved it by doing only what God could do. So a rejection of Christianity on the grounds that Jesus 
-was just another man and not God falls short. 
+human and flawed teachers. If Jesus was just a man and not God, then His words, His teaching, even His crucifixion and resurrection 
+would have been no more significant than yours or mine. However, there is plenty of Scriptural evidence that Jesus *did* not only claim 
+to be God, but He proved it by doing only what God could do. So any argument that Jesus 
+was just another man and not God falls short in the light of Scripture.
 
